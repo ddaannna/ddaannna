@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a Bachelor of Science in Information Technology student with solid experience in customer service, technical support, administrative management, and web and mobile development. I excel in organizing workflows, managing digital tasks, and providing dependable technical assistance—ensuring smooth and efficient operations for clients and teams.<br>With a strong foundation in IT and a background in leadership and support roles, I bring professionalism, adaptability, and attention to detail to every task. I’m committed to helping clients stay organized, productive, and focused on what matters most for them.<br>
+I am a 4th Year Bachelor of Science in Information Technology student with solid experience in customer service, technical support, administrative management, and web and mobile development. I excel in organizing workflows, managing digital tasks, and providing dependable technical assistance—ensuring smooth and efficient operations for clients and teams.<br>With a strong foundation in IT and a background in leadership and support roles, I bring professionalism, adaptability, and attention to detail to every task. I’m committed to helping clients stay organized, productive, and focused on what matters most for them<br>
 
 
 ## 🌐 Socials:
